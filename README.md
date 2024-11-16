@@ -1,1 +1,1 @@
-Life's good .. kinda
+Life's good ..
